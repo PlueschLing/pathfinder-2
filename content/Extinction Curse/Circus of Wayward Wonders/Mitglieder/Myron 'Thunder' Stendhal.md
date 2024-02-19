@@ -1,0 +1,8 @@
+
+![[Pasted image 20240212145049.png]]
+
+Myron "Thunder" Stendhal ist  Zirkusdirektor des Circus of Wayward Wonders. Er half dabei, Dutzenden von Artisten, die aus der Celestial Menagerie geflohen waren, eine zweite Chance in einem Zirkus zu geben, der sie mit Würde und Respekt behandelte.
+
+Thunder ist ein großer Mann, etwa 1,80 m groß. Er trägt feine Kleidung, einen hohen Zylinder, einen roten Samtmantel und makellose Gesichtsbehaarung. Sein markantestes Merkmal ist seine dröhnende Stimme; Thunder erhielt seinen Spitznamen aufgrund seiner Fähigkeit, seine Stimme durch Menschenmengen hallen zu lassen und so mit Leichtigkeit ihre Aufmerksamkeit zu erregen.
+
+Thunder zeigt sich als freundlicher und aufrichtiger Mann, der sein Bestes tut, um die Artisten vor der Vorstellung zu ermutigen, und sogar in den Wohnwagen der Spielercharaktere kam, um sie vor der Vorstellung aufzumuntern.  Er hat auch eine spielerische Seite: Er täuschte Desinteresse an Axel und seiner Darbietung vor, während er ihm unbedingt eine Chance im Zirkus geben wollte, ohne es Axel direkt zu sagen. Obwohl er geduldig ist, hat er auch seine Grenzen, wie sein gelegentlicher hitziger Streit mit Mordaine über die große Nummer zeigt. Letztendlich ist Thunder ein Mann, der an zweite Chancen glaubt und den Artisten einen Ort geben will, an dem sie ohne das Risiko von Entmenschlichung, Verletzung oder Missbrauch auftreten können.

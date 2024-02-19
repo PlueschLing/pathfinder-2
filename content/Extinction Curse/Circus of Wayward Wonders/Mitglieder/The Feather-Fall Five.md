@@ -1,0 +1,8 @@
+
+![[Pasted image 20240212152002.png]]
+
+Die Kanbalis, angeblich eine adlige Familie aus Druma auf der Flucht vor der Vergangenheit, sind eine Familie von Akrobaten und Trapezkünstlern, die als Gruppe zusammenarbeiten und fantastische Shows auf die Beine stellen.
+
+Die Kanbalis sind dunkelhäutige Künstler, die meist weiße Trikots tragen. Die Familie gehört der Ethnie der Garundi an, obwohl sie nach eigenen Angaben nie auf dem südlichen Kontinent gelebt hat. Aihab, der Vater, ist ein harter und imposant aussehender Mann, 1,80 m groß und gut durchtrainiert. Seine Frau Dhelbi ist ebenso athletisch, selbst nachdem sie drei Kinder zur Welt gebracht hat: Odvi, Xondi und Sumesh, die im ersten Buch von Extinction Curse 16, 12 bzw. 9 Jahre alt sind. Odvi, das auf den Plakaten der Feather-Fall Five abgebildete Mädchen, hat kurzes, natürliches Haar, während das von Xondi etwas länger und das von Sumesh noch kürzer ist.
+
+Die Persönlichkeiten der Feather-Fall Five sind von Familienmitglied zu Familienmitglied unterschiedlich. Aihab ist ein stolzer Mann, für den seine Familie an erster Stelle steht, auch wenn er gelegentlich gerne Geschichten aus der Vergangenheit seiner Familie ausschmückt, wenn er kann. Dhelbi scheint vernünftiger zu sein als Aihab, obwohl sie ihn trotz seiner dummen Macken liebt. Odvi schämt sich ein wenig für ihre Eltern, steht ihnen aber dennoch sehr nahe und freut sich darauf, im Zirkus zu arbeiten. Xondi ist ein wenig unaufmerksam und hat Schwierigkeiten, aufzupassen, wenn er nicht gerade Akrobatik übt, aber er ist auch ein freundlicher junger Mann. Sumesh ist freundlich und liebenswert, und ein großer Fan der Spielercharaktere.
