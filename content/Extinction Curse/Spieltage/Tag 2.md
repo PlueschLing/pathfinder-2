@@ -25,9 +25,10 @@ Der Friedhof in der Stadt hat schon etwa 20 Jahren seine Maximalbelegung erreich
 
 Hier haben wir zwei Dämonenwürmer (Vermleks) gefunden, die als Menschen verkleidet waren, und grade dabei waren Sarkophage auszugraben und die Kadaver zu verspeisen.
 
-In der Kirche selbst waren gerade zwei Dämonen (ein Abrikandilu und ein Quasit) dabei die gesamte Einrichtung zu zerstören. Nachdem wir diese beseitigt haben, sind wir auf den Priester, Nellyn Drend, gestoßen, der im Vault eingesperrt war. 
+In der Kirche selbst waren gerade zwei Dämonen (ein Abrikandilu und ein Quasit) dabei die gesamte Einrichtung zu zerstören. Der Abrikandilu hatte einen Umhang von [[Gozreh]] um die Schultern. Nachdem wir diese beseitigt haben, sind wir auf den Priester, Nellyn Drend, gestoßen, der im Vault eingesperrt war. 
 
 ![[Pasted image 20240220152635.png]]
+
 Nellyn ist zu dem Schluss gekommen dass zwei heilige Bücher, "The Manual of City-Building" und "The Order of Numbers" abhanden gekommen sind, er kann auch keine Seite dieser Bücher unter den Trümmern finden. Er bittet darum dass wir die Bücher zu Ihm zurück bringen.
 
 In der Crypta am Rande des Friedhofs (Familie Moulter) waren zwei kleine Gremlins dabei einen Haufen Unfug zu treiben, und alles zu zerstören.
