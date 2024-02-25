@@ -1,0 +1,1 @@
+Unser erstes Schiff, gefunden im Zuge der Flucht von Suskillon in Beschlag genommen. Tier 3.

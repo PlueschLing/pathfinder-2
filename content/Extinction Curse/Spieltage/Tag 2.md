@@ -1,4 +1,4 @@
-Die Mitarbeiter der [[The Professor]]s waren nicht untätig und haben in der Nach und in den frühen Morgenstunden Informationen über die Geschehnisse in der Stadt gesammelt.
+Die Mitarbeiter des [[The Professor]]s waren nicht untätig und haben in der Nach und in den frühen Morgenstunden Informationen über die Geschehnisse in der Stadt gesammelt.
 
 **Gidarron Elbus**, "The Bearded Man":
 im "The Mad Mug" treibt sich eine Gruppe Kleinkrimineller herum, die "Muggers". Am Tag besaufen sie sich, in der Nach treiben sie irgendwelchen Unfug in der Stadt. Vielleicht haben die etwas mit dem verschwinden des Sherrifs zu tun?
