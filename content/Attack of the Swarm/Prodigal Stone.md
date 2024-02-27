@@ -80,7 +80,10 @@ Die Nuar sind Westlich des Landepunktes beheimatet, Ihr Lager hat Umweltschäden
 
 Die Stände sind die Echotiefenminen der Nuar und die Winteredel Brutstätte der Ghoran.
 
+Die Luft auf dem Planeten steht sehr. Die Sonne scheint durch eine Art Nebel, an der Oberfläche sind hauptsächlich Nadelbäume zu sehen.
+
 **Stunde 1**:
+
 Nachdenken über Ghoran und Nuar: 
 
 **Ghoran**:
@@ -92,3 +95,12 @@ In Ihrer Kultur ist gemeinschaftlichkeit und kameradschaft wichtig, da Ihnen das
 Humanoide, ungefähr Menschengroß (etwas größer, ca. 2,10m und 150kg), sprechen für gewöhnlich Common und Orc, Leben in der ganzen Galaxie verteilt. Sind im Kampf dafür bekannt Leute mit Ihren Hörnern aufzuspießen (wie ein Stier). Sehen ein wenig aus wie Minotauren. Stark gebaut, mit Hufen an den Füßen. Durch Ihr bestialisches Aussehen denken viele Leute dass sie langsam im Kopf sind, aber das entspricht nicht der Wahrheit. Sie stammen von dem lange verlorenen Golarion ab. Sie halten sich selbst für deutlich unterschiedlich zu Minotauren. Minotauren sind weniger Intelligent als Nuar! Vor dem Gap lebten sie in Absalom, jetzt auf Absalom Station. Es gibt keine großen akademischen Aufzeichnungen, daher haben Sie selbst etwas erfunden, und dabei Teile von anderen Mythologien verwendet. Besonders von Orcs und Halborcs wurde viel übernommen, soweit es mit Ihren Wünschen nach Information und Erfindung zusammenpasst. Beten Häufig zu Yaraesa oder Triune. Ihre größten Priester sind gleichzeitig auch Ingenieure/Erfinder/Architekten etc.
 Es gibt Aufzeichnungen über komplexe Labyrinthe in Asteroiden die von Ihnen erbaut wurden, in denen Sie Forschungen geheim halten.
 Sind stolz auf Ihre körperlich starken Körper, aber dennoch sehr interessiert an allem Wissen.
+
+Es gibt hier auf dem Planeten essbare Früchte, aber die sind nicht sehr zahlreich. Die Tannenzapfen der Nadelbäume sind nicht sehr leicht zu verdauen.
+Es ist sichtbar dass von der Siedlund Nuar (Mine) Rauch aufsteigt. Das natürliche Klima sorgt hier für weißlichen Nebel, aber der graue Rauch bildet dicke Wolken und ist im Kontrast sehr auffällig.
+
+**Stunde 2:**
+Nuar sind unterwegs, ab jetzt alle Verhandlungen mit Nuar +2 Bonus (privat)
+
+**Stunde 3**:
+Ghoran sind unterwegs, ab jetzt alle Verhandlungen mit Ghoran +2 Bonus (privat)
