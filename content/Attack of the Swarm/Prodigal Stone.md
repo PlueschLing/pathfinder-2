@@ -104,3 +104,40 @@ Nuar sind unterwegs, ab jetzt alle Verhandlungen mit Nuar +2 Bonus (privat)
 
 **Stunde 3**:
 Ghoran sind unterwegs, ab jetzt alle Verhandlungen mit Ghoran +2 Bonus (privat)
+
+**Stunde 4:**
+Nuar kommen aus dem Westen an, sehr imposante Anführerin Jeranara. Mit drei muskelbepackten Helfern (Bornem elektrisch Eng, Gennig mechanisch Eng, Krallesh Logistik) unterwegs. Haben Nerdwaffen die sich transformieren können.
+Minenoperation wurde gegründet, nachdem hier wertvolle Metalle gefunden wurden. Die Firma (Sinnetar Mining Corp, Subsidiary von Nuar Grand Mining Company) hat schon große Mengen von Ressourcen investiert um das hier zum laufen zu bekommen.
+
+**Stunde 5**:
+Ghoran kommen an, Anführerin Allicyn (jung, wissenschaftliche Argumente, Chefbotanikerin), Threwdwyr (älter, Lilianenhaar, ethische Argumente, auch sehr wichtig) und Zieffre (lilane Blätter, pragmatische Argumente, wurde als "Bedürfnisversteher" ausgewählt).
+Wir haben eine alternative Brutstelle gefunden.
+
+**Stunde 6**:
+Ausarbeiten von Naturschutz-Daten, Scheint nicht so gut zu funktionieren.
+
+**Stunde 7**:
+Kathalysator-Idee überzeugt Allicyn.
+
+**Stunde 8**:
+Vertrag aufsetzen. Beide Seiten scheinen sehr zufrieden. Sie freuen sich auf die zukünftige Zusammenarbeit auf dem Planete.
+
+Erfolgreich beendet.
+
+**Test 3**:
+Dicht bewachsene Jungellandschaft. Riesige Dinosaurier. Großer Vulkan.
+Wir sollen hier die "unschuldigen" beschützen. Wir kämpfen nicht für Ehre oder Ruhm, wir stellen uns nur zwischen die Unschuldigen und dem was ihnen schaden möchte.
+Wir sollen vier Kreaturen helfen, die in großer Gefahr schweben, obwohl sie es nicht wissen.
+Planet Trentirri III, keine zivilisierte Gesellschaft, viele Pflanzen und Tierwesen. Viele Arten von Dinosauriern. Eine kleine Herde (vier Stück) von Thyreophorans hat sich hier niedergelassen. Sind durch eine kleine Landbrücke vom restlichen Land getrennt. Meist von Wasser bedeckt, sodass die Pflanzenfresser dort vor den Fleischfressern geschützt sind. Der Vulkan auf der Insel ist aber kurz vor dem Ausbruch, und würde die Insel zerstört. Die Landbrücke ist der einzige Weg heraus.
+
+Thyreophorans sind große Tiere mit einer gefährlichen Schwanzwaffe und sind Pflanzenfresser.
+
+Athmosphäre ist super dick und sehr heiß. Milder Seegang. Zwei Sonnen scheinen am Himmel, riesige Bäume wachsen auf der Oberfläche. Alles unterhalt von 10m sieht sehr kahl gefressen aus, dennoch gibt es viel Schatten durch die Baumkronen.
+
+Erfolgreich ans Festland gebracht.
+
+Am nächsten Tag bekommen wir die "Crown of Hylax", ein Artefakt dass Gottgleiche Macht verschafft. Vor Hunderten von Jahren wurde das an der Clutchstone Ridge von Hylexianischen Priestern gefertigt. Die Priester wussten nicht was sie da anfertigen. Um das Artefakt zu schützen, ist das Kloster am Prodigal Stone entstanden. Der Grund war auch Tuvar bis heute nicht bekannt. Hylax hat die Vision von unserer Ankunft gezeigt, und auch dass wir die Krone benutzen werden um eine große Bedrohung zu beseitigen. der Gotteswirt! Ein neues, furchteinflößendes Wesen. Kollosal, Mehrköpfig, perfekt dafür ausgelegt göttliche Energie aufzunehmen und zu verstärken. Wenn es die Crown of Hyland in die Hände bekommt, kann es die Macht für den Schwarm verwenden und ihn allmächtig machen.
+
+Die Krone enthält großes Potential um Schaden anzurichten, kann aber auch die Erlösung bedeuten.
+Wir müssen die Krone in die Psychische Dimension bringen, wo sich die Subkolonie des Gotteswirts befindet, und er mit dem restlichen Hivemind verbunden ist. Nur dort können wir die gesamte Macht der Krone entfesseln.
+Das wird die Kolonie genug verwirren, um uns die chance zu geben den Gotteswirt zu zerstören und unseren Planeten zu befreien. Der restliche Schwarm wird davon leider nicht befreit werden können.
