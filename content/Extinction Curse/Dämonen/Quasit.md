@@ -1,0 +1,3 @@
+Im Gegensatz zu anderen Dämonen entstehen Quasits, wenn ein sterblicher Zauberer einen Teil seiner eigenen sündigen Seele abwirft, um einen Vertrauten oder Begleiter zu erschaffen. Wenn diese Quasits ihre Schöpfer überleben, werden sie willensstark und suchen nach Methoden, um in den Abyss zurückzukehren, eine Aufgabe, die es erfordert, sich mächtigeren Dämonen zu unterwerfen. Daher entscheiden sich viele Quasits stattdessen dafür, auf der materiellen Ebene zu bleiben, um das Böse zu fördern und darauf zu hoffen, dass der Zufall und das Glück ihnen eines Tages eine Methode bieten, den Abyss auf eigene Faust zu erreichen.
+
+![[Pasted image 20240313091438.png]]
