@@ -9,3 +9,5 @@ Das hat Sie dazu bewegt das Dorf zu verlassen, und sich einem umherziehenden Zir
 Als Andenken an die Verstorbenen hat Sie begonnen kleine Holzpuppen in Ihrem Antlitz herzustellen, und wird immer geschickter im Umgang mit diesen. 
 
 Gefallen in einem brutalen Kampf gegen zwei [[Abrikandilu (Wrecker Demon)]].
+
+Nachfolger: [[Wild Card Karl (July)]].
