@@ -141,3 +141,15 @@ Am nächsten Tag bekommen wir die "Crown of Hylax", ein Artefakt dass Gottgleich
 Die Krone enthält großes Potential um Schaden anzurichten, kann aber auch die Erlösung bedeuten.
 Wir müssen die Krone in die Psychische Dimension bringen, wo sich die Subkolonie des Gotteswirts befindet, und er mit dem restlichen Hivemind verbunden ist. Nur dort können wir die gesamte Macht der Krone entfesseln.
 Das wird die Kolonie genug verwirren, um uns die chance zu geben den Gotteswirt zu zerstören und unseren Planeten zu befreien. Der restliche Schwarm wird davon leider nicht befreit werden können.
+
+Wir sind zurück im Suskillon-System angekommen, dort ist der Schwarm weit verbreitet.
+
+Der Schwarm hat den Prodigal Stone angegriffen, wir haben diverse Tunnel mit Sprengsätzen in die Luft gejagt, um dem Schwarm den Zugang zu erschweren.
+
+Zuguterletzt haben wir auch Tuvah verteidigt, die von einem besonders großen Schwarmwesen angegriffen wurde ohne es mitzubekommen (während ihrer Meditation).
+
+Nachdem wir Tuvah erfolgreich verteigen konnten, hat sie uns die Krone von Hylax gegeben, was uns ins eine psychische Dimension versetzt hat. Dort sieht alles aus als hätte man haufenweise Drogen genommen (Bunte Farben, Nebel, schlechte Wahrnehmung was Richtung und Entfernung angeht, ...).
+Tuvah ist sicher aber sich dass Hylax uns nicht nur den Weg durch diese Dimension weisen wird, sondern uns auch einen Weg zurück nach Hause zeigt.
+
+![[Pasted image 20240318110355.png]]
+
