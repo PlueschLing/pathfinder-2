@@ -7,7 +7,7 @@ Planung für den ersten Auftritt:
 Opener: [[Axel]]
 Build-Up: [[Bogdan Boros (Luki)]] + [[Jean Eugéne Robert-Houdin (Felix)]]
 Big Number: [[Mordaine the Magician]]
-Finale: [[The Feather-Fall Five]], [[The Dwarven Throwers]], [[Shio Wallace (July)]]
+Finale: [[The Feather-Fall Five]], [[The Dwarven Throwers]], [[Shio Wallace (Juli)]]
 
 Axels Lampenfieber wurde erfolgreich gelöst. Die Feather-Fall five sind ohne Netz aufgetreten, was die Show zum erfolg gemacht hat.
 

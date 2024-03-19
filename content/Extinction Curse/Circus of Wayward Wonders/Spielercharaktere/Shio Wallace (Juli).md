@@ -10,4 +10,4 @@ Als Andenken an die Verstorbenen hat Sie begonnen kleine Holzpuppen in Ihrem Ant
 
 Gefallen in einem brutalen Kampf gegen zwei [[Abrikandilu (Wrecker Demon)]].
 
-Nachfolger: [[Wild Card Karl (July)]].
+Nachfolger: [[Wild Card Karl (Juli)]].

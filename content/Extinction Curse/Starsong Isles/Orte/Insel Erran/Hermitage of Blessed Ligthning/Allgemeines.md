@@ -1,5 +1,5 @@
 
-![[Pasted image 20240313084945.png]]
+![[Pasted image 20240319082143.png]]
 
 Das Kloster der gesegneten Blitze liegt außerhalb von Abberton auf einer Klippe mit Blick auf das Meer. Obwohl sie ursprünglich nicht von Gozrens erbaut wurde, war sie der perfekte Ort, um sich dort niederzulassen und über die Macht des von ihnen gewählten Gottes nachzudenken.
 

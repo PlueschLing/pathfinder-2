@@ -6,4 +6,4 @@ In den vernagelten Katakomben konnten wir einige Ghoule finden, die dort damit b
 
 Tiefer im Kloster sind wir auf weitere korrupte Priester und einige Dämonen getroffen, die damit beschäftigt waren alles mögliche zu zerstören. Schließlich konnten wir die Bücher finden, die vom Oberpriester der Kirche in [[Abberton]] gesucht wurden.
 
-Im Kampf gegen zwei [[Abrikandilu (Wrecker Demon)]] ist [[Shio Wallace (July)]] gefallen.
+Im Kampf gegen zwei [[Abrikandilu (Wrecker Demon)]] ist [[Shio Wallace (Juli)]] gefallen.
