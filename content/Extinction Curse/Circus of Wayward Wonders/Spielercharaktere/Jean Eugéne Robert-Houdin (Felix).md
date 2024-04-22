@@ -1,5 +1,5 @@
 
-
+![[Pasted image 20240321103101.png]]
 
 Künstlername: Ehrik Weisz
 Gnomen Sorcerer
