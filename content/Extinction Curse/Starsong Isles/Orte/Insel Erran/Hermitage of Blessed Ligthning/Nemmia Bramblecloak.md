@@ -3,5 +3,5 @@
 Halbling Zealot, CR 3
 
 Kann offensichtlich sehr effektiv mit Tieren kommunizieren, bzw. diese kontrollieren.
-Eine Frau von [[Gozreh]].
+Eine Frau von [[content/Extinction Curse/Götter/Gozreh]].
 Derzeit keine genauen Informationen bekannt.

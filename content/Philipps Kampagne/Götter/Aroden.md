@@ -1,6 +1,6 @@
 
 The Last Azlanti
-Gläubige nach Tod großteils übernommen von: [[content/Extinction Curse/Götter/Iomedae]]
+Gläubige nach Tod großteils übernommen von: [[content/Philipps Kampagne/Götter/Iomedae]]
 
 ![[Pasted image 20240213124256.png]]
 

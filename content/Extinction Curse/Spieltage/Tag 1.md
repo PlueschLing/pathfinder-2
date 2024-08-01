@@ -25,7 +25,7 @@ In [[Myron 'Thunder' Stendhal]]'s Wagen waren vier große Pflanzen als Fallen au
 
 Danach ist natürlich wieder Axel in den Mittelpunkt der Ermittlung gefallen, war aber weiterhin nicht anzufinden. Auch sein Wagen war nicht zugänglich, deshalb hat sich natürlich die Gruppe aufgeteilt, eine Entscheidung die sich bisher in jedem Abenteuer ausgezahlt hat!
 
-[[Michael 'Michi' Jott (Moritz)|Michi]] ist dann alleine (!) einer kleinen Viper in den angrenzenden Wald gefolgt, und hat dort ein verlassenes Lager mit einem Rucksack gefunden. Auf diesem Rucksack war ein Zeichen von [[Gozreh]] zu finden.
+[[Michael 'Michi' Jott (Moritz)|Michi]] ist dann alleine (!) einer kleinen Viper in den angrenzenden Wald gefolgt, und hat dort ein verlassenes Lager mit einem Rucksack gefunden. Auf diesem Rucksack war ein Zeichen von [[content/Extinction Curse/Götter/Gozreh]] zu finden.
 
 In besagtem Rucksack hat er eine Karte gefunden, auf welcher erschreckend akkurate Details des Zirkus-Lagers eingezeichnet sind. Weiters sind noch "Oldlin's Orchard" und "Hawfton Mill" auf der Karte eingezeichnet.
 

@@ -1,5 +1,5 @@
 The Inheritor
-Vorgänger: [[content/Extinction Curse/Götter/Aroden]]
+Vorgänger: [[content/Philipps Kampagne/Götter/Aroden]]
 
 ![[Pasted image 20240212112145.png]]
 
