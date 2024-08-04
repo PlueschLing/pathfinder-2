@@ -9,3 +9,8 @@ alles randvoll.
 Während dem Kennenlernen stirbt jemand. Nach kurzer Untersuchung stellt es sich als natürlicher Tod heraus. Es ist [[Kuracz]] Sohn. Der ist normalerweise immer mit seiner Bande unterwegs, jetzt lässt sich aber niemand blicken.
 
 Wir übernachten in der Taverne, für die erste Nacht umsonst.
+
+Am nächsten Tag machen wir uns auf den Weg zu einer kleinen Siedlung im Nord-Westen, wo Seppls Mutter wohnt.
+Im Wald auf dem Weg wurden wir von einem Mutantenwolf angegriffen. Seine Schwachstelle war sein braunes Auge.
+Lt. seiner Mutter:
+Er war beim Flugballklub "FC Daggermark" sehr beliebt, und hatte viele Freunde.
