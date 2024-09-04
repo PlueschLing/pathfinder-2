@@ -3,10 +3,10 @@ Generell reiche Stadt, Geld wird für Kreatives und schönes Ausgegeben.
 Hauptsport ist Flugball. Ähnlich aufgebaut wie ein Fußballfeld, mit einem Kreisrunden tor.
 Ball darf nur die Hände verlassen wenn beide Füße den Boden verlassen. Alles ist erlaubt solang man in der Luft ist (solange man niemanden verletzt - Kontakt soll vermieden werden)
 
-Taverne zum fliegenden Schwein
+Taverne zum fliegenden Schwein.
 An der Bar ist eine Elfe "Marcille". Ihr Handlanger "Bertl".
 alles randvoll. 
-Während dem Kennenlernen stirbt jemand. Nach kurzer Untersuchung stellt es sich als natürlicher Tod heraus. Es ist [[Kuracz]] Sohn. Der ist normalerweise immer mit seiner Bande unterwegs, jetzt lässt sich aber niemand blicken.
+Während dem Kennenlernen stirbt jemand (der Seppl). Nach kurzer Untersuchung stellt es sich als natürlicher Tod heraus. Es ist [[Kuracz]] Sohn. Der ist normalerweise immer mit seiner Bande unterwegs, jetzt lässt sich aber niemand blicken.
 
 Wir übernachten in der Taverne, für die erste Nacht umsonst.
 
